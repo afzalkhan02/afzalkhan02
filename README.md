@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **afzalkhan14344@gmail.com**
 
-- 📄 Know about my experiences [https://app.luminpdf.com/viewer/62c1aeecc0b16ded7d528504](https://app.luminpdf.com/viewer/62c1aeecc0b16ded7d528504)
+- 📄 Know about my experiences https://docs.google.com/document/d/1XyX4r6TpuTF_1EA-kwmazCQr0BLl9M-c0p4fLqH0hMs/edit?usp=sharing
 
 - ⚡ Fun fact **I am funny**
 
