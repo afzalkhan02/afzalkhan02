@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **afzalkhan14344@gmail.com**
 
-- 📄 Know about my experiences https://docs.google.com/document/d/1XyX4r6TpuTF_1EA-kwmazCQr0BLl9M-c0p4fLqH0hMs/edit?usp=sharing
+- 📄 Know about my experiences or CV https://docs.google.com/document/d/1XyX4r6TpuTF_1EA-kwmazCQr0BLl9M-c0p4fLqH0hMs/edit?usp=sharing
 
 - ⚡ Fun fact **I am funny**
 
