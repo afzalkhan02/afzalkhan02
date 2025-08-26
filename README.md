@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=afzalkhan02&label=Profile%20views&color=0e75b6&style=flat" alt="afzalkhan02" /> </p>
 
-- 🌱 I’m currently learning **Full Stack Development**
+- 🌱 I’m currently working at GTECH WEB SOLUTIONS as a **DOT NET DEVELOPER**
 
 - 📝 I regularly write articles on [Human Behaviour](Human Behaviour)
 
